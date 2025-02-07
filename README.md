@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cybersecurity Blockchain Artificial intelligence Machine learning
 - 🌱 I’m currently learning Java Python C
 - 💞️ I’m looking to collaborate on ...C
-- 📫 How to reach me ...ashikarap0905@gmail.com
+- 📫 How to reach me ...ashikarao2005@gmail.com
 - 😄 Pronouns: ...She
 - ⚡ Fun fact: ...
 
